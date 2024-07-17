@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...3d printing&designing
 - 🌱 I’m currently learning ...cad/cam technologies
 - 💞️ I’m looking to collaborate on ...additive mfg & 3d priting
-- 📫 How to reach me ...
+- 📫 How to reach me ... https://x.com/vijay_palika
 - 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ...Yadbavam tadbavathi
 
